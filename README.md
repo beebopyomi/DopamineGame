@@ -1,6 +1,6 @@
 # DopamineGame
 
-# log1
+# log 1
 
 # 12:57 11-05-2026
 
@@ -11,7 +11,7 @@ and you win once the baby is 69 years old and diesof old age.
 
 -----------------------------------------------------------------------------
 
-# log1
+# log 2
 
 # 11:39 18-05-2026
 
