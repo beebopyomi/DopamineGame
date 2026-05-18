@@ -13,7 +13,7 @@ and you win once the baby is 69 years old and diesof old age.
 
 # log1
 
-# 1139 18-05-2026
+# 11:39 18-05-2026
 
 yo lowkey i have a new idea for a game so like its just blocks and you need to remove all the blocks from the schreen and they have physics and like you will have bad and good blocks and you will need to get rid of the bad blocks and keep the green ones alife and if they fall you fail and like therere will be neutral blocks that can remian on the screen and you can lowkey use them to save the good blocks and get rid of the bad blocks and it will get harder and harder.
 
